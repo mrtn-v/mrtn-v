@@ -5,7 +5,7 @@
 <img align="left" width="255" height="350" alt="Untitled130_20260610210424" src="https://github.com/user-attachments/assets/652cbed0-a50c-4c72-903b-2512f098383f" />
 
 </br>⠀⠀⠀[☆](https://open.spotify.com/track/0NdTUS4UiNYCNn5FgVqKQY?si=18ac9fc889d54779)⠀⠀⠀`I` ${\textsf{\color{#485276}love}}$ `my` ${\textsf{\color{#394463}boyfriend}}$ `<3`
-</br> ⠀⠀⠀⠀[Strawpage](https://mrtined.straw.page)⠀⠀⠀⠀[Prns](https://pronouns.cc/@martinn)⠀⠀⠀⠀[FM](https://www.last.fm/user/mart1n__)
+</br> ⠀⠀⠀⠀WIP Straw⠀⠀⠀⠀[Prns](https://pronouns.cc/@martinn)⠀⠀⠀⠀[FM](https://www.last.fm/user/mart1n__)
 
 
 
