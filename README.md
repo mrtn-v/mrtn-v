@@ -12,7 +12,6 @@
 
 
 </br> ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀`this is best viewed on pc/laptop`
-</br> ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀`CHECK OUT MY NEW STRAW !! GO GO GO`
 
 
 
