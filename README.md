@@ -1,4 +1,4 @@
-`wip. best viewed on desktop`
+`best viewed on desktop`
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=martin-cortis&color=2C3440&abbreviated=true&label=݁⠀⠀˖𓂃⠀⠀🐒🪽˖.⠀⠀)
 
