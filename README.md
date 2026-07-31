@@ -1,12 +1,12 @@
 <div align="center">
 
-${\textsf{\color{#A7A7A7}"take some of this it'll clam you down"}}$
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cormorant&weight=300&size=17&duration=2000&pause=10&color=a7a7a7&center=true&vCenter=true&width=500&lines=as+salty+sweat+drips+from+her+breast;...her+hips+move+and+i+can+feel+what+they're+saying;..swaying+" alt="Typing SVG" /></a>
 
 <p align="center">
 <div align=center">
 
 <p align="center">
-<img width="800" height="400" alt="6a8a868f529240da8c478763b7bf2d31" src="https://github.com/user-attachments/assets/1b7ab036-0906-46b6-ab22-7351e3375294" />
+<img width="736" height="414" alt="a6903901bf70dd4672214cde939e7913" src="https://github.com/user-attachments/assets/4e279d37-2f96-4cc0-b125-356fc435565a" />
 </p>
   
 ![](https://komarev.com/ghpvc/?username=martin-cortis&color=000000&abbreviated=true&style=for-the-badge)
@@ -20,9 +20,6 @@ ${\textsf{\color{#A7A7A7}"take some of this it'll clam you down"}}$
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31kliqz4jhbuzq2fs3mdv4hcseoi&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=fefff1">
   </a>
 </p> 
-
-
-
 
 
 
