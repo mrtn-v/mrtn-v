@@ -12,7 +12,7 @@
 ![](https://komarev.com/ghpvc/?username=martin-cortis&color=000000&abbreviated=true&style=for-the-badge)
 
 
-[Strawpage](https://lloveyoutodeath.straw.page/) . [新book](https://mrtnn.atabook.org/) . [Art Tumblr](https://www.tumblr.com/mangomnkey) . [Prns](https://pronouns.cc/@th-vm)
+[strawpage](https://lloveyoutodeath.straw.page/) . [新book](https://mrtnn.atabook.org/) . [art tumblr](https://www.tumblr.com/mangomnkey) . [prns.cc](https://pronouns.cc/@th-vm)
 
 <img width="338" height="44" alt="image" src="https://github.com/user-attachments/assets/e7678bc6-5d0e-4f49-a6d2-2479962f9e20" />
 <div></div>
