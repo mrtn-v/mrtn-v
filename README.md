@@ -15,9 +15,10 @@
 [strw](https://lloveyoutodeath.straw.page/)⠀⠀⠀[ata](https://mrtnn.atabook.org/)⠀⠀⠀[art](https://www.tumblr.com/mangomnkey)⠀⠀⠀[prns.cc](https://pronouns.cc/@th-vm)
 
 <img width="338" height="44" alt="image" src="https://github.com/user-attachments/assets/e7678bc6-5d0e-4f49-a6d2-2479962f9e20" />
-<img width="338" height="44" alt="image" src="https://github.com/user-attachments/assets/0e6e0b58-2f05-4b4c-b765-159cc07fa172" />
+<img width="539" height="44" alt="Screenshot 2026-08-02 6 37 09 PM" src="https://github.com/user-attachments/assets/6cfd4e21-71aa-44a3-a7a1-60c60d9adb60" />
 
-title-town + pt hall of media
+
+title-town + pt hall of media, thank you both !!
 <div></div>
 
 <p align="right">
