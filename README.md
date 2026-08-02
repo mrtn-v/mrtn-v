@@ -15,6 +15,9 @@
 [strw](https://lloveyoutodeath.straw.page/)⠀⠀⠀[ata](https://mrtnn.atabook.org/)⠀⠀⠀[art](https://www.tumblr.com/mangomnkey)⠀⠀⠀[prns.cc](https://pronouns.cc/@th-vm)
 
 <img width="338" height="44" alt="image" src="https://github.com/user-attachments/assets/e7678bc6-5d0e-4f49-a6d2-2479962f9e20" />
+<img width="338" height="44" alt="image" src="https://github.com/user-attachments/assets/0e6e0b58-2f05-4b4c-b765-159cc07fa172" />
+
+title-town + pt hall of media
 <div></div>
 
 <p align="right">
@@ -22,9 +25,6 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31kliqz4jhbuzq2fs3mdv4hcseoi&cover_image=true&theme=default&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=fefff1">
   </a>
 </p> 
-
-
-
 
 
 
