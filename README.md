@@ -19,6 +19,8 @@
 
 
 title-town + pt hall of media, thank you both !!
+
+[all ponytowners, read this before interacting.](https://rentry.co/mrtnvponytown)
 <div></div>
 
 <p align="right">
