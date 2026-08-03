@@ -11,6 +11,8 @@
   
 ![](https://komarev.com/ghpvc/?username=martin-cortis&color=000000&abbreviated=true&style=for-the-badge)
 
+[all ponytowners, read this before interacting.](https://rentry.co/mrtnvponytown)
+
 
 [strw](https://lloveyoutodeath.straw.page/)⠀⠀⠀[ata](https://mrtnn.atabook.org/)⠀⠀⠀[art](https://www.tumblr.com/mangomnkey)⠀⠀⠀[prns.cc](https://pronouns.cc/@th-vm)
 
@@ -20,7 +22,7 @@
 
 title-town + pt hall of media, thank you both !!
 
-[all ponytowners, read this before interacting.](https://rentry.co/mrtnvponytown)
+
 <div></div>
 
 <p align="right">
