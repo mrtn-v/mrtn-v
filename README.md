@@ -11,10 +11,8 @@
   
 ![](https://komarev.com/ghpvc/?username=martin-cortis&color=000000&abbreviated=true&style=for-the-badge)
 
-[all ponytowners, read this before interacting.](https://rentry.co/mrtnvponytown)
 
-
-[strw](https://lloveyoutodeath.straw.page/)⠀⠀⠀[ata](https://mrtnn.atabook.org/)⠀⠀⠀[art](https://www.tumblr.com/mangomnkey)⠀⠀⠀[prns.cc](https://pronouns.cc/@th-vm)
+[rentry](https://rentry.co/th_vm)⠀⠀⠀[ata](https://mrtnn.atabook.org/)⠀⠀⠀[art](https://www.tumblr.com/mangomnkey)⠀⠀⠀[pt notice](https://rentry.co/mrtnvponytown)
 
 <details>
   <summary>ponytown awards</summary>
