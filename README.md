@@ -21,6 +21,8 @@
 </details>
 
 
+Unfortunately, my art tumblr does not have all my recent art works.. but I will update it when I get the opportunity. Until then, there is still art posted there and it'd be greatly appreciated if you'd go check my art out :]
+
 <div></div>
 
 <p align="right">
