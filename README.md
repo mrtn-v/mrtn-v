@@ -1,12 +1,12 @@
 <div align="center">
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Cormorant&weight=300&size=17&duration=2000&pause=10&color=a7a7a7&center=true&vCenter=true&width=500&lines=as+salty+sweat+drips+from+her+breast;...+her+hips+move+and+i+can+feel+what+they're+saying;..+swaying+" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Mansalva&weight=300&size=17&duration=2400&pause=20&color=ffffff&center=true&vCenter=true&width=500&lines=i+don't+wanna+go,+sir,+please.+please.;...+i+don't+wanna+go.+i+don't+wanna+go...+" alt="Typing SVG" /></a>
 
 <p align="center">
 <div align=center">
 
 <p align="center">
-  <img width="329" height="223" alt="Screenshot 2026-08-06 12 28 30 AM" src="https://github.com/user-attachments/assets/6986e1d3-2df3-4c61-9405-baa96cd6cbce" />
+<img width="550" height="380" alt="Screenshot 2026-08-12 1 03 38 AM" src="https://github.com/user-attachments/assets/1d06cfda-b5c3-49ed-a619-12ae5203a3a1" />
 </p>
   
 ![](https://komarev.com/ghpvc/?username=martin-cortis&color=000000&abbreviated=true&style=for-the-badge)
