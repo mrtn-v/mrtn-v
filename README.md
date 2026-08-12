@@ -9,7 +9,7 @@
 <img width="1191" height="392" alt="Screenshot 2026-08-12 1 37 19 AM" src="https://github.com/user-attachments/assets/d069ec23-a7e1-425d-9134-43f25f8c9d8f" />
 </p>
   
-![](https://komarev.com/ghpvc/?username=martin-cortis&color=000000&abbreviated=true&style=for-the-badge)
+![](https://komarev.com/ghpvc/?username=martin-cortis&color=c61a09&abbreviated=true&style=for-the-badge)
 
 
 [rentry](https://rentry.co/th_vm)⠀⠀⠀[ata](https://mrtnn.atabook.org/)⠀⠀⠀[art](https://www.tumblr.com/mangomnkey)⠀⠀⠀[pt notice](https://rentry.co/mrtnvponytown)
