@@ -6,7 +6,7 @@
 <div align=center">
 
 <p align="center">
-<img width="550" height="380" alt="Screenshot 2026-08-12 1 03 38 AM" src="https://github.com/user-attachments/assets/1d06cfda-b5c3-49ed-a619-12ae5203a3a1" />
+<img width="1191" height="392" alt="Screenshot 2026-08-12 1 37 19 AM" src="https://github.com/user-attachments/assets/d069ec23-a7e1-425d-9134-43f25f8c9d8f" />
 </p>
   
 ![](https://komarev.com/ghpvc/?username=martin-cortis&color=000000&abbreviated=true&style=for-the-badge)
