@@ -4,12 +4,13 @@
 
 <p align="center">
 <div align=center">
+<img src="https://i.pinimg.com/originals/5c/9b/4c/5c9b4c681b532525f3e1a613e7080925.gif"/>
 
 <p align="center">
-<img width="1191" height="392" alt="Screenshot 2026-08-12 1 37 19 AM" src="https://github.com/user-attachments/assets/d069ec23-a7e1-425d-9134-43f25f8c9d8f" />
+
 </p>
   
-![](https://komarev.com/ghpvc/?username=martin-cortis&color=c61a09&abbreviated=true&style=for-the-badge)
+![](https://komarev.com/ghpvc/?username=martin-cortis&color=111154&abbreviated=true&style=for-the-badge)
 
 
 [rentry](https://rentry.co/th_vm)⠀⠀⠀[ata](https://mrtnn.atabook.org/)⠀⠀⠀[art](https://www.tumblr.com/mangomnkey)⠀⠀⠀[pt notice](https://rentry.co/mrtnvponytown)
@@ -21,7 +22,7 @@
 </details>
 
 
-Unfortunately, my art tumblr does not have all my recent art works.. but I will update it when I get the opportunity. Until then, there is still art posted there and it'd be greatly appreciated if you'd go check my art out :]
+My art tumblr does not contain all my recent works, but I will update it during my free time.
 <div></div>
 
 <p align="right">
